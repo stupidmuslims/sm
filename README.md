@@ -1,0 +1,2 @@
+# sm
+Stupid Muslim Site
